@@ -1,0 +1,2 @@
+Để điều trị thoái hóa đốt sống cổ hiệu quả, người bệnh cần phối hợp nhiều phương pháp khác nhau theo chỉ định của bác sĩ: trong cơn cấp tính có thể dùng thuốc tây để giảm đau, chống viêm; sau đó sử dụng các sản phẩm thảo dược để bồi bổ can thận, làm mạnh gân cường cốt. 
+https://www.linkedin.com/pulse/tho%C3%A1i-h%C3%B3a-%C4%91%E1%BB%91t-s%E1%BB%91ng-c%E1%BB%95-nguy%C3%AAn-nh%C3%A2n-tri%E1%BB%87u-ch%E1%BB%A9ng-v%C3%A0-c%C3%A1ch-ch%E1%BB%AFa-b%E1%BB%87nh-kh%E1%BB%9Bp/?published=t
